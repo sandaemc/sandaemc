@@ -23,6 +23,8 @@ I also direct the disposition of specific assets, if any, as follows:
 
  - GoTrade Investment
  - PagIbig MP2
+ - Maya Savings
+ - PHCCI Savings
 
 ### V. Guardianship:
 
